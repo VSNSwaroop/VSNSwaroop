@@ -46,10 +46,4 @@ I’m passionate about building impactful solutions using **Artificial Intellige
 
 ---
 
-## 📫 Let’s Connect
-- 🌐 [LinkedIn](https://www.linkedin.com/in/your-linkedin-profile)
-- 📧 Email: your.email@example.com
-
----
-
 ⭐ _Thanks for visiting my profile!_
