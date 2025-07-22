@@ -46,4 +46,9 @@ I’m passionate about building impactful solutions using **Artificial Intellige
 
 ---
 
+## 📫 Let’s Connect
+- 🌐 [LinkedIn](https://www.linkedin.com/in/swaroop-vakapalli)
+
+---
+
 ⭐ _Thanks for visiting my profile!_
